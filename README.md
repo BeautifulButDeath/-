@@ -6,10 +6,11 @@
 
 
 ୨ ꒰ 𝐀 𝐯 𝐚 / 𝐀 𝐯 𝐞 𝐫 𝐢 𝐚 ꒱ ✦ <a href="https://img1.picmix.com/output/stamp/normal/7/9/1/0/2670197_c106f.png" target="blank"><img align="center" src="https://img1.picmix.com/output/stamp/normal/7/9/1/0/2670197_c106f.png" height="10" /></a> <a href="https://img1.picmix.com/output/stamp/normal/2/3/5/5/1875532_9712b.png" target="blank"><img align="center" src="https://img1.picmix.com/output/stamp/normal/2/3/5/5/1875532_9712b.png" height="10" /></a>𓈒 𓈒 𓈒  She / Her !!  IXFJ - 9w1 <a href="https://img1.picmix.com/output/stamp/normal/3/2/1/0/970123_524c8.png" target="blank"><img align="center" src="https://img1.picmix.com/output/stamp/normal/3/2/1/0/970123_524c8.png" height="20" /></a>
+Single 
 
  ₊˚ ‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵ ˚₊
 
-I might be a bit awkward and quiet person, but I'm actually a friendly person once you get to know me well !! <a href="https://img1.picmix.com/output/stamp/normal/5/6/1/8/2758165_0c00e.png" target="blank"><img align="center" src="https://img1.picmix.com/output/stamp/normal/5/6/1/8/2758165_0c00e.png" height="20" /></a>
+I might be a bit awkward and quiet person, but I'm actually a friendly and sweet person once you get to know me well !! <a href="https://img1.picmix.com/output/stamp/normal/5/6/1/8/2758165_0c00e.png" target="blank"><img align="center" src="https://img1.picmix.com/output/stamp/normal/5/6/1/8/2758165_0c00e.png" height="20" /></a>
 
 Please, don't be afraid to interact with me. I don't bite, I promise <a href="https://img1.picmix.com/output/stamp/normal/3/9/2/9/2759293_18c89.png" target="blank"><img align="center" src="https://img1.picmix.com/output/stamp/normal/3/9/2/9/2759293_18c89.png" height="20" /></a>
 
