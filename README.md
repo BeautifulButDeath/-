@@ -11,7 +11,7 @@ Single
 
 I might be a bit awkward and quiet person, but I'm actually a friendly and sweet person once you get to know me well !! <a href="https://img1.picmix.com/output/stamp/normal/5/6/1/8/2758165_0c00e.png" target="blank"><img align="center" src="https://img1.picmix.com/output/stamp/normal/5/6/1/8/2758165_0c00e.png" height="20" /></a>
 
-Please, don't be afraid to interact with me. I don't bite, I promise <a href="https://img1.picmix.com/output/stamp/normal/3/9/2/9/2759293_18c89.png" target="blank"><img align="center" src="https://img1.picmix.com/output/stamp/normal/3/9/2/9/2759293_18c89.png" height="20" /></a>
+Please, don't be afraid to interact with me. I'm a chill and calm person. Idon't bite, I promise <a href="https://img1.picmix.com/output/stamp/normal/3/9/2/9/2759293_18c89.png" target="blank"><img align="center" src="https://img1.picmix.com/output/stamp/normal/3/9/2/9/2759293_18c89.png" height="20" /></a>
 
 PLEASE LET ME KNOW IF I'M A LITTLE ANNOYING OR ANYTHING. I welcome feedback from anyone I meet or know!!<a href="https://img1.picmix.com/output/stamp/normal/1/4/8/2/2762841_2412a.png" target="blank"><img align="center" src="https://img1.picmix.com/output/stamp/normal/1/4/8/2/2762841_2412a.png" height="45" /></a>
 
